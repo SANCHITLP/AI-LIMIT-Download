@@ -38,7 +38,11 @@ You will need to challenge the powerful beasts from multiple forces in death and
 * Experience diverse and exhilarating action battles
 
 > Wide variety and number of weapons.
+> 
 > Mix and match your weapons and weapon skills.
+> 
 > Increase Sync Rate with brave attack and wise defense, become even mightier in battle.
+>
 > The transformation mechanism in your left hand can drive dozens of spells, attack or assist at will.
+> 
 > Utilize multiple systems to achieve a rich combination of moves, and seize the opportunity in the ever-changing exchange of attack and defense.
